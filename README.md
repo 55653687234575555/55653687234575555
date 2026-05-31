@@ -1,1 +1,1 @@
-<div align="center"><img src="https://noyxmon.onrender.com/@lazy" width="50%"/></div>
+<div align="center"><img src="https://five5653687234575555.onrender.com/@lazy" width="50%"/></div>
